@@ -2,7 +2,7 @@
 ### Amanda Bot
 Add her to your Server When if your Server needs help!
 
-- Join on `Amanda's Support 🌇🌆**
+- Join on `Amanda's Support 🌇🌆`
 - Click in Amanda's Name
 - Add Her To Your Server!
 
